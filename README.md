@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **chideranwankwo14@gmail.com**
 
-- 📄 Know about my experiences: [**Current Resume**](https://drive.google.com/file/d/1QWznwzoTQciSlC7JnrHwZrjFzflexy72/view?usp=sharing)
+- 📄 Know about my experiences: [**Current Resume**](https://drive.google.com/file/d/18okmQvIpU1zFTOSxKnRcJDM-PFD7zehp/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
